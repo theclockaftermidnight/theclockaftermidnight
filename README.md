@@ -2,9 +2,9 @@
 
 <img width="1920" height="454" alt="border" src="https://github.com/user-attachments/assets/93d94c6d-e40d-4d9a-82b9-6ddb8f11fc00" />
 
-Name: Raye or Timekeeper!
+Name: Paradox or Timekeeper!
 
-Pronouns: Any! Although the main ones people use on me are she/they, don't be afraid to add some pizzazz!
+Pronouns: She/they/clock/time
 
 Age: 14, turning 15 in May!
 
