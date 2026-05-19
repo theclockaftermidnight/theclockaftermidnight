@@ -2,6 +2,10 @@
 
 <img width="1920" height="454" alt="border" src="https://github.com/user-attachments/assets/93d94c6d-e40d-4d9a-82b9-6ddb8f11fc00" />
 
+## BEFORE YOU INTERACT:
+
+Timelily (Timekeeper Cookie x White/Saint Lily) is my number one comfort ship, if you have anything negative to say about it, preferably DNI /srs.
+
 Name: Paradox or Timekeeper!
 
 Pronouns: She/they/clock/time
