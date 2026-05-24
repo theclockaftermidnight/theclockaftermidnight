@@ -12,7 +12,7 @@ Name: Paradox or Timekeeper!
 
 Pronouns: She/they/clock/time
 
-Age: 14, turning 15 in May!
+Age: 15!
 
 DNI List: Basic criteria, adults that actively seek out making minors uncomfortable around them, most Dandy's World players (the fandom makes me uncomfortable, the exception to this is if I already know you), people who actively make queerphobic and racist jokes, people who fake mental illness (ONLY exception is if I know you're joking and making fun of the people who do this)
 
