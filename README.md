@@ -8,7 +8,7 @@ Timelily (Timekeeper Cookie x White/Saint Lily) is my number one comfort ship, i
 
 ## About me!
 
-Name: Paradox or Timekeeper!
+Name: Cir
 
 Pronouns: She/they/clock/time
 
