@@ -12,6 +12,8 @@ Do NOT bring up what happened to White/Saint Lily in Beast-Yeast Episode 15 or y
 
 ON PONYTOWN:
 
+I am ALWAYS on-tab unless specified, I see EVERY message (This is why I answer fast)
+
 Please do not kiss or boop my skin UNLESS you are a friend! It makes me uncomfortable. /srs
 
 Interact with caution/care by default!
@@ -24,6 +26,6 @@ Pronouns: She/they/clock/time
 
 Age: 15!
 
-DNI List: Basic criteria, adults that actively seek out making minors uncomfortable around them, most Dandy's World players (the fandom makes me uncomfortable, the exception to this is if I already know you), people who actively make queerphobic and racist jokes, people who fake mental illness (ONLY exception is if I know you're joking and making fun of the people who do this)
+Check Strawpage for more information!
 
 <img width="1920" height="454" alt="border_bottom" src="https://github.com/user-attachments/assets/649ea095-d058-433a-b807-659a399bd81b" />
