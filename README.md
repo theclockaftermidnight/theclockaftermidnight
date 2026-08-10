@@ -22,10 +22,10 @@ Interact with caution/care by default!
 
 Name: Paradox/Timekeeper
 
-Pronouns: She/they/clock/time
+Pronouns: They/she/clock/time
 
 Age: 15!
 
-Check Strawpage for more information!
+Check links for more information!
 
 <img width="1920" height="454" alt="border_bottom" src="https://github.com/user-attachments/assets/649ea095-d058-433a-b807-659a399bd81b" />
