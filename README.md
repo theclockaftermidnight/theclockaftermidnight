@@ -4,7 +4,11 @@
 
 ## BEFORE YOU INTERACT:
 
+I hide/block freely! On ponytown it is mostly a 24 hour hide, but it can be permanant!
+
 Timelily (Timekeeper Cookie x White/Saint Lily) is my number one comfort ship, if you have anything negative to say about it, preferably DNI /srs.
+
+IF YOU SHIP NETHERLILY HEAVY DNI /srs I consider this a proship and that is on my DNI
 
 My mood can easily be killed, so please be mindful with what you say.
 
