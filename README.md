@@ -10,6 +10,8 @@ Timelily (Timekeeper Cookie x White/Saint Lily) is my number one comfort ship, i
 
 IF YOU SHIP NETHERLILY HEAVY DNI /srs I consider this a proship and that is on my DNI
 
+HEAVY DNI on verity fans/worshippers (especially worshippers) it's just a smiley face and yall are annoying as fuck btw
+
 My mood can easily be killed, so please be mindful with what you say.
 
 Do NOT bring up what happened to White/Saint Lily in Beast-Yeast Episode 15 or you will be blocked. /srs
