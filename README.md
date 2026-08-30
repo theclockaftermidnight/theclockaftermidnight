@@ -30,6 +30,14 @@ Pronouns: They/she/clock/time
 
 Age: 15!
 
-Check links for more information!
+## ON PONYTOWN
+
+Feel free to interact with me if I'm sitting alone!
+
+Random friend requests will be denied! I do not want to flood my friends list with people I don't know.
+
+I can be rude without meaning to, so please let me know if my behavior makes you uncomfortable
+
+## Check links for more information!
 
 <img width="1920" height="454" alt="border_bottom" src="https://github.com/user-attachments/assets/649ea095-d058-433a-b807-659a399bd81b" />
